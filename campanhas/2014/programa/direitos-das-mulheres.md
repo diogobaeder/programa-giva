@@ -74,4 +74,3 @@ A representação das mulheres na política no Brasil ainda é muito pequena. É
  * Defender a legalização do aborto na Câmara dos Deputados e demais esferas de debate político.
  * Nos mobilizar contra o Estatuto do Nascituro.
  * Defender a democratização da comunicação e o controle social da mídia
-
